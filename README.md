@@ -1,4 +1,4 @@
-# :wave: I am @gunnary77
+# :wave: I am @gunnary1017
 # :school: I am a student at WHS
 # :keyboard: I take computer programming
 # :video_game: I like video games
